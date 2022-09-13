@@ -4,6 +4,6 @@ Mi Primer Repocitorio en GitHub
 
 Me Gusta :Video Games:, :Football:
 
-Al Final no me Salieron los Emotes
+No me aprecen los emotes
 
-La Verdadera F Bro...
+La verdadera F bro...
